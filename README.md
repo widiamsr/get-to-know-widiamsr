@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @widiamsr
-- 👀 I’m interested in creative problem-solving, digital tools, and making life easier with tech!
+- 👀 I’m interested in creative problem-solving in a most beautiful way with design!
 - 🌱 I’m currently learning Mobile Development
 - 💞️ I’m looking to collaborate on team project with amazing people around me!😋
 - 📫 You can reach me via Instagram @widiamsr._
